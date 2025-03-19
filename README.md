@@ -3,9 +3,12 @@ For the letters you've written never meaning to send...
 # LetterInABottle
 For the letters you've written never meaning to send...
 
-- Log In 
+- Log In
+  
 - Save Letters
+  
 They are not editable or you cannot delete a letter. It is what makes it something good. 
+
 - No Messaging System
   
 Actually, I am one of the most sociable people I know. I used to be a board member of nearly 20 clubs at Bilkent. Also, I do extracurricular activites nearly every day of the week. Yet, I cannot believe that I am the only person struggling with loneliness. I found out that, I was really idealistic about many things. People think they have friends because they have someone messaging them. 
