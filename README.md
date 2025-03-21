@@ -11,9 +11,10 @@ They are not editable or you cannot delete a letter. It is what makes it somethi
 
 - No Messaging System
   
-Actually, I am one of the most sociable people I know. I used to be a board member of nearly 20 clubs at Bilkent. Also, I do extracurricular activites nearly every day of the week. Yet, I cannot believe that I am the only person struggling with loneliness. I found out that, I was really idealistic about many things. People think they have friends because they have someone messaging them. 
+Actually, I am one of the most sociable people I know. I used to be a board member of nearly 20 clubs at Bilkent. Also, I do extracurricular activites nearly every day of the week. Yet, I cannot believe that I am the only person struggling with loneliness. I found out that, I am just realistic about many things. People think they have friends because they have someone messaging them. Yet they do not too. 
+They think: "You have to be trusted by the people that you lie to. So that when they turn their backs on you, you'll get the chance to put the knife in." So instant communication is just an illusion.
 
-Actually, I don't use my phone when it is not necessary. I HATE messaging with someone I love, chit-chatting nonsense. I believe soul-to-soul connections. There are no barriers for real connections. Messaging is an illusion, it cannot be replaced with anything REAL.
+Actually, I don't use my phone when it is not necessary. I HATE messaging with someone I love, chit-chatting nonsense. I believe soul-to-soul connections. So, this is my program and there is no messaging.
 
 - Make a QR code to give all your letters when it is okay.
   
